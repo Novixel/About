@@ -5,6 +5,7 @@
 - 💞️ I’m looking to collaborate on any small projects for a fee
 - 📫 You can contact me for collaborations or business inquiries at https://novixel.ca/contact
 - 🐦 You will usually find me on Twitter @OfficialNovixel
+- And dont forget those trading bots!!!!
 
 Find Your Solution Today At https://Novixel.ca
 
